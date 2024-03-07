@@ -1,0 +1,1 @@
+Making sure you fully understand is what is most crucial,I believe that is the only way to be confident in any task given, being confident in your skill will always show through your work.
